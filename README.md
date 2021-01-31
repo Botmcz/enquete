@@ -1,17 +1,17 @@
 *Se você pudesse ficar com qualquer pessoa do grupo quem seria essa pessoa ?*
 *Qual foi sua experiência mais vergonhosa?*
-*Você já riu de alguém e hoje se arrepende?
-*Qual foi a pior mentira que você já contou?
-*Com que idade você perdeu a virgindade?
-*O que você mudaria na sua aparência física?
-*Você lembra onde foi seu primeiro beijo? E com quem foi?
-*Como foi o pior encontro da sua vida?
-*Qual é o seu maior desejo?
-*Qual é sua melhor qualidade?
-*Qual é seu pior defeito?
-*Qual é a coisa mais estranha que você faz quando está sozinho?
-*Colocaria silicone?
-*Já se apaixonou por alguém que não deveria?
+*Você já riu de alguém e hoje se arrepende*
+*Qual foi a pior mentira que você já contou?*
+*Com que idade você perdeu a virgindade*
+*O que você mudaria na sua aparência física*
+*Você lembra onde foi seu primeiro beijo? E com quem foi?*
+*Como foi o pior encontro da sua vida*
+*Qual é o seu maior desejo?*
+*Qual é sua melhor qualidade*
+*Qual é seu pior defeito*
+*Qual é a coisa mais estranha que você faz quando está sozinho*
+*Colocaria silicone?*
+*Já se apaixonou por alguém que não deveria?s*
 *Já se apaixonou por um amigo?*
 *Como foi sua primeira vez?*
 *Qual é sua posição sexual preferida?*
